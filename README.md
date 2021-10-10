@@ -1,1 +1,2 @@
-# testfdssdfsdfvsdv  sgsdfdsfasdfcadcdscvdsvsd sdvsvsvdvsdvsddsv dsvsdsdvsdvdvdsvsdvsdv svsdvdsvdsvdsvsdvsdvs
+ОБЩАЯ ИНФОРМАЦИЯ О 
+РЕПОЗИТОРИИ
